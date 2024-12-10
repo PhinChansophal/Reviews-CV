@@ -32,3 +32,14 @@ Credits:
 License:
 -----------------------
 This template is under Free License - https://www.themesine.com/license/  Free not by
+
+
+                                    -------------------------------------------------------
+                                    |   My support me Everytime Here is my chatGPT Hasha   |
+                                    -------------------------------------------------------
+                                                        From Me : Student E2
+                                                        ---------------------
+                                                        Year : 2024 
+                                                        -----------
+                                                        News Project For Demo
+                                                        ---------------------
